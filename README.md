@@ -1,0 +1,1 @@
+# Puig_Equity_Research
